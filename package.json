@@ -1,0 +1,15 @@
+{
+    "name": "the-psychology-of-mindful-leadership-for-small-business-owners-understanding-the-unique-leadership-challenges-and-opportunities-for-small-business-owners-and-how-to-use-mindfulness-to-succeed",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
