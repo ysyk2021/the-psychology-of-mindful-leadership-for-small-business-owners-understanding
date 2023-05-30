@@ -8,4 +8,4 @@ Through personal stories, case studies, and practical exercises, readers will le
 
 In the following chapters, we will explore various aspects of mindful leadership for small business owners, including the science behind effective mindful leadership, techniques for promoting mindful communication and collaboration, strategies for overcoming common leadership challenges, and tips for leveraging technology to enhance your mindful leadership experience. With a commitment to personal growth and a willingness to embrace new opportunities and challenges, anyone can cultivate a mindful approach to leadership and achieve greater success and fulfillment in their work.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
