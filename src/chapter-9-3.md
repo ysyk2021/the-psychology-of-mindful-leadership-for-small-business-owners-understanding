@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-==========================================================================================================================
 
 Leveraging technology is essential for small business owners who want to promote mindful leadership, enhance productivity, and improve accessibility and inclusivity. In this chapter, we will discuss strategies for leveraging technology for mindful leadership as a small business owner.
 

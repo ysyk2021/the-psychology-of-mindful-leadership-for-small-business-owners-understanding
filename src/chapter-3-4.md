@@ -1,5 +1,3 @@
-Developing Mindfulness and Awareness Through Mindful Leadership
-===================================================================================================================
 
 Developing a mindful leadership mindset involves developing mindfulness and awareness through the practice of mindful leadership. In this chapter, we will explore strategies for developing mindfulness and awareness through mindful leadership.
 

@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored the unique challenges and opportunities of small business ownership and leadership, and how mindfulness can be used as a tool for success. We have discussed strategies for practicing mindful leadership, managing resistance to change, fostering a culture of mindfulness in small businesses, and measuring progress and learning from experience. In this final chapter, we will recap key strategies for practicing mindful leadership as a small business owner and provide final thoughts and advice.
 

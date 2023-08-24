@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Mindful Leadership as a Small Business Owner
-==============================================================================
 
 Managing resistance to mindful leadership is an important aspect of promoting a positive and productive work environment as a small business owner. In this chapter, we will discuss strategies for managing resistance to mindful leadership as a small business owner.
 

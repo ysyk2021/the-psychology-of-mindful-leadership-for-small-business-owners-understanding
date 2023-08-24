@@ -1,5 +1,3 @@
-Chapter 3: Developing a Mindful Leadership Mindset
-==================================================
 
 Developing a mindful leadership mindset is essential for small business owners who want to create positive work environments, build strong relationships with employees and customers, and achieve long-term success. In this chapter, we will discuss techniques for cultivating a mindful leadership mindset.
 

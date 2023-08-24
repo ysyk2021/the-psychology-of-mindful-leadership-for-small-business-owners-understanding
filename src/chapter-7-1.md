@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Mindful Leadership as a Small Business Owner
-========================================================================================================================================================================
 
 While mindful leadership can bring many benefits to small businesses, there may be resistance to adopting this approach. In this chapter, we will explore common sources of resistance to mindful leadership and strategies for managing this resistance.
 

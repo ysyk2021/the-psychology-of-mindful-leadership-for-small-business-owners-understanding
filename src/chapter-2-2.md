@@ -1,5 +1,3 @@
-Understanding the Science Behind Effective Mindful Leadership
-=====================================================================================================
 
 In this chapter, we will explore the concept of mindful leadership and the scientific principles behind its effectiveness.
 

@@ -1,5 +1,3 @@
-Avoiding Information Overload
-================================================================================================================
 
 Leveraging technology is essential for small business owners who want to practice mindful leadership, enhance productivity, and promote growth and development. However, with the vast amount of information available at our fingertips, it's easy to feel overwhelmed and experience information overload. In this chapter, we will discuss strategies for avoiding information overload while using technology to enhance your mindful leadership experience as a small business owner.
 

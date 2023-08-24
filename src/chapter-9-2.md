@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Mindful Leadership Experience as a Small Business Owner
-===========================================================================================================================================================================
 
 In this chapter, we will explore how small business owners can use technology to enhance their mindful leadership experience and achieve greater success.
 

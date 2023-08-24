@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-===============================================================================================================================
 
 Resistance to mindful leadership can come from many sources, including fear of change, lack of understanding, and perceived time constraints. In this chapter, we will explore strategies for overcoming resistance to mindful leadership as a small business owner.
 

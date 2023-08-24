@@ -1,5 +1,3 @@
-Benefits of Practicing Mindful Leadership
-==================================================================
 
 Mindful leadership is a management approach that emphasizes self-awareness, emotional intelligence, and ethical decision-making. In this chapter, we will discuss the benefits of practicing mindful leadership for small business owners.
 

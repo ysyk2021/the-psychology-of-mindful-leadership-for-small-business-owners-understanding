@@ -1,5 +1,3 @@
-Developing Strategies for Enhancing Mindful Leadership Skills as a Small Business Owner
-=======================================================================================================================================================================
 
 Developing mindful leadership skills is an ongoing process that requires practice and dedication. In this chapter, we will explore strategies for enhancing mindful leadership skills as a small business owner.
 

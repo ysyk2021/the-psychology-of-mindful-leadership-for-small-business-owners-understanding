@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-==========================================================================================================
 
 Resistance to change is common in any organization, including small businesses. As a small business owner practicing mindful leadership, you may face resistance from employees, customers, or vendors who are not familiar with or comfortable with this leadership approach. In this chapter, we will discuss strategies for managing resistance and fostering a growth mindset.
 

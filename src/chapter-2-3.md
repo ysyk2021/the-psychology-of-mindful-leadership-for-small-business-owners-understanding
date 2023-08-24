@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Mindful Leadership
-==============================================================================================
 
 Defining mindful leadership is an important step in developing a mindful approach as a small business owner. In this chapter, we will explore the definition of mindful leadership and provide strategies for assessing your personal approach to mindful leadership.
 

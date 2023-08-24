@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-===============================================================================================================
 
 Resistance to mindful leadership can stem from fear and uncertainty about adopting new approaches to leadership. In this chapter, we will explore strategies for addressing fear and uncertainty and managing resistance to mindful leadership.
 

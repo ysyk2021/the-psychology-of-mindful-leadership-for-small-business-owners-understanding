@@ -1,5 +1,3 @@
-Common Misconceptions About Mindful Leadership
-=======================================================================
 
 Mindful leadership is a management approach that emphasizes self-awareness, emotional intelligence, and ethical decision-making. Despite its growing popularity, there are still many misconceptions about mindful leadership. In this chapter, we will discuss some common misconceptions and clarify what mindful leadership truly entails.
 

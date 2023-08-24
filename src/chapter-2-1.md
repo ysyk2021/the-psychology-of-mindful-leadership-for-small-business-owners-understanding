@@ -1,5 +1,3 @@
-Overview of Mindful Leadership
-======================================================================
 
 Mindful leadership is a leadership approach that emphasizes self-awareness, compassion, and the ability to be present in the moment. In this chapter, we will provide an overview of mindful leadership and its key characteristics.
 

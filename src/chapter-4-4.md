@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-==================================================================================================================================
 
 Small business owners may face limiting beliefs that can hinder their ability to lead with intention and purpose. In this chapter, we will explore strategies for addressing limiting beliefs and unlocking the full potential of mindful leadership.
 

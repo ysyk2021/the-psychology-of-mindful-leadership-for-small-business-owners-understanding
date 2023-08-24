@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-==========================================================================================================================================
 
 Reflection and self-evaluation are essential components of mindful leadership for small business owners. In this chapter, we will focus on strategies for reflection and self-evaluation to help you become a more effective leader.
 

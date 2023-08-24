@@ -1,5 +1,3 @@
-Finding Ways to Incorporate Mindful Leadership into Daily Life as a Small Business Owner
-========================================================================================================================================================================
 
 Incorporating mindful leadership into your daily life as a small business owner can be challenging, but doing so can lead to greater success and fulfillment. In this chapter, we will discuss ways to maximize your mindful leadership skills as a small business owner.
 

@@ -1,5 +1,3 @@
-Communicating Effectively
-=========================================================================================================
 
 Effective communication is essential to successful leadership, especially for small business owners who often work closely with their employees and clients. In this chapter, we will discuss how small business owners can maximize their mindful leadership skills by communicating effectively.
 

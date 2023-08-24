@@ -1,5 +1,3 @@
-Small Business Ownership and Leadership
-================================================================
 
 Small business ownership comes with a unique set of challenges and opportunities, particularly when it comes to leadership. In this chapter, we will explore the relationship between small business ownership and leadership.
 

@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results in Mindful Leadership as a Small Business Owner
-===================================================================================================================================================================================================
 
 As a small business owner, it is important to measure the effectiveness of your leadership strategies in order to make informed decisions about future actions. Mindful leadership involves taking a more intentional approach to decision-making, and this includes tracking progress and measuring results.
 

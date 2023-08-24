@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Mindful Leadership Skills as a Small Business Owner
-==============================================================================
 
 Maximizing your mindful leadership skills is essential for small business owners who want to create positive work environments, build strong relationships with employees and customers, and achieve long-term success. In this chapter, we will discuss strategies for maximizing your mindful leadership skills as a small business owner.
 

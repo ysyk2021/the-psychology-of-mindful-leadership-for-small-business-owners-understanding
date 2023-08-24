@@ -1,5 +1,3 @@
-Adapting to Changes in Life and Business
-====================================================================================================================================================
 
 Measuring results and learning from experience is essential for small business owners who want to practice mindful leadership, grow their businesses, and adapt to changes in life and business. In this chapter, we will discuss strategies for measuring results and learning from experience in mindful leadership as a small business owner.
 

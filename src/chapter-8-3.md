@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-===================================================================================================================
 
 Creating a culture of mindful leadership is essential for small business owners who want to promote positive work environments, build strong relationships with employees and customers, and achieve long-term success. In this chapter, we will discuss strategies for fostering knowledge sharing and mentorship in small businesses.
 

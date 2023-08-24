@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-==========================================================================================
 
 Developing a mindful leadership mindset involves setting realistic goals and objectives that align with your business vision and values. In this chapter, we will explore strategies for setting effective goals and objectives as a small business owner.
 

@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-==================================================================================================
 
 Developing a mindful leadership mindset is essential for small business owners who want to lead with intention and purpose. In this chapter, we will explore strategies for developing a mindful leadership mindset through positive self-talk and visualization.
 

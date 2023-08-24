@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Mindful Leadership for Small Business Owners
-======================================================================================================================================================================
 
 Effective mindful leadership is essential for small business owners looking to lead with intention and purpose. In this chapter, we will explore the principles of effective mindful leadership for small business owners.
 

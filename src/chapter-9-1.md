@@ -1,5 +1,3 @@
-Identifying Mindful Leadership Technologies and Resources for Small Business Owners
-======================================================================================================================================================================
 
 In this chapter, we will explore how small business owners can leverage technology to support their mindful leadership practices and achieve greater success.
 

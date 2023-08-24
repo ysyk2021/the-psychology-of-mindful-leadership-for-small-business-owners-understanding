@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-===============================================================================================================================================
 
 Continuous learning and improvement are essential for small business owners practicing mindful leadership. In this chapter, we will focus on strategies for continuous learning and improvement to help you become a more effective leader.
 

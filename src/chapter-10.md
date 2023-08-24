@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience in Mindful Leadership as a Small Business Owner
-==========================================================================================================
 
 Mindful leadership is an ongoing process that requires continuous learning and improvement. In this chapter, we will discuss strategies for tracking progress, measuring results, and learning from experience as a small business owner practicing mindful leadership.
 

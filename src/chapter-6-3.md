@@ -1,5 +1,3 @@
-Utilizing Tools and Resources
-=============================================================================================================
 
 In addition to practicing mindful leadership skills, small business owners can also utilize tools and resources to support their development. In this chapter, we will explore some of the tools and resources available to small business owners for developing mindful leadership skills.
 

@@ -1,5 +1,3 @@
-Celebrating Mindful Leadership-Based Achievements
-==========================================================================================================================
 
 Creating a culture of mindful leadership is essential for small business owners who want to promote positive work environments, build strong relationships with employees and customers, and achieve long-term success. In this chapter, we will discuss strategies for celebrating mindful leadership-based achievements in small businesses.
 

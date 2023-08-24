@@ -1,5 +1,3 @@
-The Benefits of Focusing on Mindful Leadership in Small Business Ownership
-=================================================================================================================================================================================
 
 Small business owners face unique challenges when it comes to leadership. In this chapter, we will explore these challenges and the benefits of focusing on mindful leadership in small business ownership.
 
