@@ -1,5 +1,4 @@
-Chapter: Overview of Mindful Leadership
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of mindful leadership and its significance for small business owners. Understanding the principles and practices of mindful leadership is essential for harnessing its potential to drive personal growth, enhance leadership effectiveness, and cultivate thriving businesses.
 

@@ -1,5 +1,4 @@
-Chapter: Fostering Continuous Learning and Improvement
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuous learning and improvement for small business owners in the context of mindful leadership. By embracing a growth mindset and prioritizing ongoing personal and professional development, leaders can enhance their effectiveness, adapt to changing circumstances, and drive sustainable success.
 

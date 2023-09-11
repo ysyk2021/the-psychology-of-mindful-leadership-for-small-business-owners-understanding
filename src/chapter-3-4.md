@@ -1,5 +1,4 @@
-Chapter: Developing Mindfulness and Awareness through Mindful Leadership
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the concept of developing mindfulness and awareness as small business owners through the practice of mindful leadership. We will explore how embracing mindful leadership can enhance self-awareness, foster emotional intelligence, and promote a deeper understanding of oneself and others.
 

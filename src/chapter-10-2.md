@@ -1,5 +1,4 @@
-Chapter: Reflection and Self-Evaluation
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of reflection and self-evaluation for small business owners practicing mindful leadership. We will discuss how regular introspection and assessment can enhance self-awareness, improve decision-making, and foster personal and professional growth.
 

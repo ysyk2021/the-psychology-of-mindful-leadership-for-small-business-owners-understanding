@@ -1,5 +1,4 @@
-Chapter: Utilizing Positive Self-Talk and Visualization
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of positive self-talk and visualization for small business owners practicing mindful leadership. We will discuss how these practices can enhance focus, boost confidence, promote resilience, and support goal achievement.
 

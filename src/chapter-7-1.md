@@ -1,5 +1,4 @@
-Chapter: Identifying Common Sources of Resistance to Mindful Leadership as a Small Business Owner
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various sources of resistance that small business owners may encounter when adopting mindful leadership practices. Understanding these sources can help entrepreneurs navigate the challenges and overcome resistance to fully embrace mindful leadership in their business endeavors.
 

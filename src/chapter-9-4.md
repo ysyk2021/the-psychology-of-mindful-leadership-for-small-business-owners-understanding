@@ -1,5 +1,4 @@
-Chapter: Avoiding Information Overload
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for small business owners to avoid information overload and cultivate a mindful approach to managing the vast amount of information available to them. We will discuss techniques for prioritizing, filtering, and processing information effectively to ensure clarity, focus, and informed decision-making.
 

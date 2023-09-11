@@ -1,5 +1,4 @@
-Chapter: Tracking Progress and Measuring Results in Mindful Leadership as a Small Business Owner
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking progress and measuring results in mindful leadership for small business owners. We will discuss the benefits of setting goals, implementing effective measurement systems, and leveraging data to drive continuous improvement and success.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating a Mindful Leadership Mindset
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques that small business owners can employ to cultivate a mindful leadership mindset. We will delve into practices and strategies that enhance self-awareness, promote clarity of thought, and foster resilience in the face of challenges.
 

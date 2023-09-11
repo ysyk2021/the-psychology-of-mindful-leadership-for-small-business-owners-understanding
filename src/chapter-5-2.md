@@ -1,5 +1,4 @@
-Chapter: Finding Ways to Incorporate Mindful Leadership into Daily Life as a Small Business Owner
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies and techniques for small business owners to incorporate mindful leadership into their daily lives. We will discuss various aspects of integrating mindfulness into different areas of entrepreneurship, allowing entrepreneurs to cultivate mindful practices that enhance their leadership skills and overall well-being.
 

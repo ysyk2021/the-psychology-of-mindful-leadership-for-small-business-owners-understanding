@@ -1,5 +1,4 @@
-Chapter: Recognizing the Unique Challenges and Opportunities for Small Business Owners
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the distinctive challenges and opportunities that small business owners face in their leadership journey. Understanding these unique factors is crucial for cultivating mindful leadership practices and maximizing success in the dynamic world of small business ownership.
 

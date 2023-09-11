@@ -1,5 +1,4 @@
-Chapter: The Benefits of Focusing on Mindful Leadership in Small Business Ownership
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come with focusing on mindful leadership as a small business owner. Mindfulness practices can significantly impact your effectiveness, well-being, and overall success in navigating the unique challenges and opportunities of small business ownership. By embracing mindful leadership, you can create a positive work environment, foster employee engagement, and enhance organizational performance.
 

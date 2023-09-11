@@ -1,5 +1,4 @@
-Chapter: Using Technology to Enhance Your Mindful Leadership Experience as a Small Business Owner
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how small business owners can leverage technology to enhance their mindful leadership experience. We will discuss various digital tools, applications, and platforms that can support leaders in practicing mindfulness, improving productivity, fostering collaboration, and maintaining work-life balance.
 

@@ -1,5 +1,4 @@
-Chapter: Understanding the Science Behind Effective Mindful Leadership
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the scientific foundations behind effective mindful leadership. By understanding the underlying science, small business owners can gain insights into how mindfulness practices impact the brain, emotions, and behavior, leading to enhanced leadership effectiveness and business success.
 

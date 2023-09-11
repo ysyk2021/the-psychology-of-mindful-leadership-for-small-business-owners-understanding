@@ -1,5 +1,4 @@
-Chapter: Communicating Effectively
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of effective communication for small business owners and how mindfulness can enhance communication skills. We will discuss various aspects of communication and provide practical strategies for small business owners to improve their communication effectiveness through mindful practices.
 

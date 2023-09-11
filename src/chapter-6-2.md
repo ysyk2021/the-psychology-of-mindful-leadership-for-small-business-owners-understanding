@@ -1,5 +1,4 @@
-Chapter: Developing Strategies for Enhancing Mindful Leadership Skills as a Small Business Owner
-================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies that small business owners can employ to enhance their mindful leadership skills. Running a small business comes with unique challenges and opportunities, and practicing mindfulness can be a valuable tool to navigate these complexities successfully. By developing and honing mindful leadership skills, small business owners can cultivate a more effective and fulfilling leadership style.
 

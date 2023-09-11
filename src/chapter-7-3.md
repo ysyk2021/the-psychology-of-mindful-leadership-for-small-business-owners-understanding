@@ -1,5 +1,4 @@
-Chapter: Addressing Fear and Uncertainty
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies to address fear and uncertainty in the context of mindful leadership for small business owners. By understanding and effectively navigating these challenges, leaders can cultivate resilience, adaptability, and a sense of calm amidst unpredictable circumstances.
 

@@ -1,5 +1,4 @@
-Chapter: Understanding the Principles of Effective Mindful Leadership for Small Business Owners
-===============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the principles of effective mindful leadership and explore how small business owners can apply them to navigate the unique challenges and opportunities they face. By understanding these principles and incorporating them into their leadership approach, small business owners can cultivate a more fulfilling, sustainable, and successful business.
 

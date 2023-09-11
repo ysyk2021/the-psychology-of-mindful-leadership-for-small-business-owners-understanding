@@ -1,5 +1,4 @@
-Chapter: Fostering Trust and Respect
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering trust and respect as small business owners practicing mindful leadership. We will discuss strategies and practices that can help create a culture of trust and respect within the organization, leading to stronger relationships, improved communication, and increased employee engagement.
 

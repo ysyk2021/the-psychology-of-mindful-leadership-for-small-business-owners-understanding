@@ -1,5 +1,4 @@
-Chapter: Utilizing Tools and Resources
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various tools and resources that small business owners can utilize to enhance their mindful leadership practices. These tools and resources provide practical support and guidance, helping small business owners navigate the unique challenges and opportunities they face while incorporating mindfulness into their leadership approach.
 

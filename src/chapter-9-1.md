@@ -1,5 +1,4 @@
-Chapter: Identifying Mindful Leadership Technologies and Resources for Small Business Owners
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore technologies and resources that can support small business owners in practicing mindful leadership. We will discuss tools, apps, and platforms designed to enhance self-awareness, improve decision-making, promote well-being, and foster personal and professional growth.
 

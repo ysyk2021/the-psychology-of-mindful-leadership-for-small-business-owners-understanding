@@ -1,5 +1,4 @@
-Chapter: Analyzing the Impact of Mindful Leadership on Small Business Owners and Their Communities
-==================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that mindful leadership can have on small business owners and their surrounding communities. By incorporating mindfulness into their leadership approach, small business owners can foster positive change, create meaningful connections, and contribute to the well-being and growth of their communities.
 
